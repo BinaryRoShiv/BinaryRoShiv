@@ -1,6 +1,6 @@
 
 # 💫 Hi 👋, I'm Shivesh Bhooshan
-**A passionate Cloud Engineer || DevOps Engineer || Software Engineer || Web Developer from India**
+**A passionate Cloud Engineer || Data Engineer || Data Analyst || Software Engineer  from India**
 
 Email Me 👉 ✉️ **shiveshyadav251@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
