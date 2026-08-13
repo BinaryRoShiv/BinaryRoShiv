@@ -2,7 +2,7 @@
 # 💫 Hi 👋, I'm Shivesh Bhooshan
 **A passionate Cloud Engineer || Data Engineer || Data Analyst || Software Engineer  from India**
 
-Email Me 👉 ✉️ **shiveshyadav251@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **roshiv265@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 
 <h3 align="left">Connect with me:</h3>
